@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @praisesrr.
+- 🎁 You can call me Praison.
+- 👀 I’m interested in Web Developmant and Database Management.
+- 🌱 I’m currently learning new Cloud Data Managemant System.
+- 💞️ I’m looking to collaborate on Web Design, Database and UI/UX of Web and Software.
+- 📫 You can reach me by email praise4design@gmail.com
+- 📳 You can ping me by https://api.whatsapp.com/send/?phone=918848205641
+- 🎁 Web Design and Digital Marketing will be done.
+- 💰 Fessible Web Design and Static Web pages.
+- ✔ Book now for the help
